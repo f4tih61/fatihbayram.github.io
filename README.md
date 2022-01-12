@@ -1,1 +1,0 @@
-# fatihbayram.github.io
